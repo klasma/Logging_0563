@@ -1,0 +1,1 @@
+# Valdemarsviks kommun
